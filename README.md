@@ -7,7 +7,7 @@ the story that came out of this analysis.*
 
 Story by [Kira Schacht](https://www.twitter.com/daten_drang), additional interviews by [Hanna Demissie](https://www.linkedin.com/in/hannademissie/). 
 
-**Read the full article on DW.com:** [English](https://www.dw.com/a-66331763)
+**Read the full article on DW.com:** [English](https://www.dw.com/a-66331763) | [German](https://www.dw.com/a-66379903)
 
 
 ## Dataset
